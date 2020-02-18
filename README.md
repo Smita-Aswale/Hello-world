@@ -30,4 +30,4 @@ Three former directors of the Global Smallpox Eradication Programme read the new
 
 2002: The Global Fund to Fight AIDS, Tuberculosis and Malaria was drawn up to improve the resources available.[10]
 
-2006: The organization endorsed the world's first official HIV/AIDS Toolkit for Zimbabwe, which formed the basis for global prevention, treatment, and support the plan to fight the AIDS pandemic.[19]
+2006: The organization endorsed the world's first official HIV/AIDS Toolkit for Zimbabwe, which formed the basis for global prevention, treatment, and support the plan to fight the AIDS pandemic.
